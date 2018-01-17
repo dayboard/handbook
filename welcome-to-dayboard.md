@@ -1,0 +1,1 @@
+Hey! Welcome to our team! We’re so excited to have you join us. We’re hoping you’re going to learn a lot working here and that we’ll learn a lot from you. But first, this document will help you start figuring out how we works and how we work together.
